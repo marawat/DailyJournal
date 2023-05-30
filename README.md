@@ -11,12 +11,13 @@ office work and meeting..
 
 Challenges: Write about any difficulties or challenges you faced during the day
 >Challenges were lots of meetings
-> Flowing in emotional state for long during the day..
+Flowing in emotional state for long during the day..
 
-Self-Reflection: Take time to reflect on your thoughts, beliefs, and values
+> Self-Reflection: Take time to reflect on your thoughts, beliefs, and values
 Thoughts were i just sit and someone cooks for me...thoughts are i will do work and stocks and michevous funs
 Value: I feel like supporting everone
 
+> Emotions: Describe your emotions and feelings throughout the day.
 Overall I am satisifed from work perspective but I am missing something in life...shipra,,,
 
 ***************************************************************************************************************************************************************
