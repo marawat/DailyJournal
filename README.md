@@ -21,3 +21,21 @@ Value: I feel like supporting everone
 Overall I am satisifed from work perspective but I am missing something in life...shipra,,,
 
 ***************************************************************************************************************************************************************
+31st May
+
+Same morning routine...woke up was into newspaper and TV
+mom prepared breakfast & lunch for me
+left office on time as usual by 8:45..feel irritated if get late due to lunch not packed or otherwise
+
+Afternoon thoughts...if shipra calls me and start conversation stating she missed me, i would go into emotional zone and forget all practical challenges,.,n we go for long term
+
+evening thoughs---supreiya called me asking for mom health,though i was yawning during conversation but felt, is we were married she could be taking care of mom and cooking and household..was felling attracted towards her..
+
+
+
+
+
+
+
+
+
