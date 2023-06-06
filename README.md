@@ -31,7 +31,10 @@ Afternoon thoughts...if shipra calls me and start conversation stating she misse
 
 evening thoughs---supreiya called me asking for mom health,though i was yawning during conversation but felt, is we were married she could be taking care of mom and cooking and household..was felling attracted towards her..
 
+***************************************************************************************************************************************************************
+6th June
 
+I was staying upset from few days thnking about shipra. Today she messaged me to get me know about and we had some chat going and planned to meet...I am calmer now..no as such burden on my head...later today spoke to Supriya as she called..i feeel bad that there is one girl whom i love and there is other girl who loves me..
 
 
 
