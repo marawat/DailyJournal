@@ -1,42 +1,27 @@
-# DailyJournal
+# DailyJournal Emotional Trigger
+
+Youtube:https://bigthink.com/videos/mindfulness-how-to-call-off-the-emotional-attack-dogs-2/
+
+Activity: Recognise your emotional triggers for a month 14 Aug--15th Sept
 
 
-30 May
+Problem 1: Having more choice about what you become emotional about?
 
-Woke up at 6am, made tea for mom
-Mom was preparing breakfast and I was watching TV
-Got ready for office...day was busy...thoughts michevious coming...will i be committed ?
-stocks market focus
-office work and meeting..
+  Step1:Goal is to identify 3-4 redundant things that are making you go emotional
+  Step:2 Now the things which got you emotional but there was no reason to be emotional, mark them in a RED circle. Ask , what are common themes?
+  Step3: Doing this will tell you whar are those themes.
+  Step 4: Next time you are about to get into that theme, ask yourself, what can i do to stop this emotinal trigger, how are you going to calm your mind ?---breathing or body scan or 
+          did you not get proper sleep last night
 
-Challenges: Write about any difficulties or challenges you faced during the day
->Challenges were lots of meetings
-Flowing in emotional state for long during the day..
-
-> Self-Reflection: Take time to reflect on your thoughts, beliefs, and values
-Thoughts were i just sit and someone cooks for me...thoughts are i will do work and stocks and michevous funs
-Value: I feel like supporting everone
-
-> Emotions: Describe your emotions and feelings throughout the day.
-Overall I am satisifed from work perspective but I am missing something in life...shipra,,,
-
-***************************************************************************************************************************************************************
-31st May
-
-Same morning routine...woke up was into newspaper and TV
-mom prepared breakfast & lunch for me
-left office on time as usual by 8:45..feel irritated if get late due to lunch not packed or otherwise
-
-Afternoon thoughts...if shipra calls me and start conversation stating she missed me, i would go into emotional zone and forget all practical challenges,.,n we go for long term
-
-evening thoughs---supreiya called me asking for mom health,though i was yawning during conversation but felt, is we were married she could be taking care of mom and cooking and household..was felling attracted towards her..
-
-***************************************************************************************************************************************************************
-6th June
-
-I was staying upset from few days thnking about shipra. Today she messaged me to get me know about and we had some chat going and planned to meet...I am calmer now..no as such burden on my head...later today spoke to Supriya as she called..i feeel bad that there is one girl whom i love and there is other girl who loves me..
+Problem 2: We act in a way that we dont approve ourself in emotional phase?
+           Solution: Increase your Impulse to Reaction Time (action gap) and how to do that?
+           Step1: Practice called mindfullness---20 min a day--4 days a week--6 months to start taking effect.
 
 
+Choose How you Act: Two ways: How to be become aware of the fact that you are acting emotionally.
+
+#1: Pay attention to the emotions of the person infront of You. What are your facial expressions doing to that person, learn from that. You cant see your expresison but you can look at them.
+#2: Change within you body-- Temperature, breathing, sweating, change in muscular tension...Observe them and Focus on those sensations
 
 
 
