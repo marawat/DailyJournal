@@ -36,10 +36,10 @@ Was there any reason to be emotional of these themes ??  YES
 
 ##########################################################################################################################################################################
 Day 2: 
-Context: 
-Emotional Triggers: 
-Why are you allowing these triggers hit you?---> 
-Was there any reason to be emotional of these themes ??  
+Context: Watching emotional scene in movie/serial/youtube--involving patriotisim, someone sacrificing
+Emotional Triggers: Cry, shortness of breath
+Why are you allowing these triggers hit you?---> somehow I feel I am the one who is sufferer or doer here 
+Was there any reason to be emotional of these themes ??  NO--Red Flagged
 
 ##########################################################################################################################################################################
 Day 3: 
