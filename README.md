@@ -9,7 +9,7 @@ Problem 1: Having more choice about what you become emotional about?
 
   Step1:Goal is to identify 3-4 redundant things that are making you go emotional
   Step:2 Now the things which got you emotional but there was no reason to be emotional, mark them in a RED circle. Ask , what are common themes?
-  Step3: Doing this will tell you whar are those themes.
+  Step3: Doing this will tell you what are those themes.
   Step 4: Next time you are about to get into that theme, ask yourself, what can i do to stop this emotinal trigger, how are you going to calm your mind ?---breathing or body scan or 
           did you not get proper sleep last night
 
@@ -24,6 +24,35 @@ Choose How you Act: Two ways: How to be become aware of the fact that you are ac
 #2: Change within you body-- Temperature, breathing, sweating, change in muscular tension...Observe them and Focus on those sensations
 
 
+                                                                 Emotional Trigger Diary
+##########################################################################################################################################################################
+Day 1: 
+
+Context: Remembering about past break up
+Emotional Triggers: Feeling heaviness in chest, tension in facial muscle, cry
+Why are you allowing these triggers hit you?---> Love for other person and things happened all of sudden, answered queries, loss of someone close suddenly
+
+Was there any reason to be emotional of these themes ??  YES
+
+##########################################################################################################################################################################
+Day 2: 
+Context: 
+Emotional Triggers: 
+Why are you allowing these triggers hit you?---> 
+Was there any reason to be emotional of these themes ??  
+
+##########################################################################################################################################################################
+Day 3: 
+Context: 
+Emotional Triggers: 
+Why are you allowing these triggers hit you?---> 
+Was there any reason to be emotional of these themes ??  
+##########################################################################################################################################################################
+Day 4: 
+Context: 
+Emotional Triggers: 
+Why are you allowing these triggers hit you?---> 
+Was there any reason to be emotional of these themes ??  
 
 
 
