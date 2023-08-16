@@ -25,7 +25,7 @@ Choose How you Act: Two ways: How to be become aware of the fact that you are ac
 
 
                                                                  Emotional Trigger Diary
-##########################################################################################################################################################################
+##############################################################################################################################
 Day 1: 
 
 Context: Remembering about past break up
@@ -34,20 +34,20 @@ Why are you allowing these triggers hit you?---> Love for other person and thing
 
 Was there any reason to be emotional of these themes ??  YES
 
-##########################################################################################################################################################################
+##################################################################################################################################
 Day 2: 
 Context: Watching emotional scene in movie/serial/youtube--involving patriotisim, someone sacrificing
-Emotional Triggers: Cry, shortness of breath
-Why are you allowing these triggers hit you?---> somehow I feel I am the one who is sufferer or doer here 
+Emotional Triggers: Cry, shortness of breath, helpless
+Why are you allowing these triggers hit you?---> somehow I feel I am the one who is sufferer or doer here or need to do something
 Was there any reason to be emotional of these themes ??  NO--Red Flagged
 
-##########################################################################################################################################################################
+#####################################################################################################################################
 Day 3: 
 Context: 
 Emotional Triggers: 
 Why are you allowing these triggers hit you?---> 
 Was there any reason to be emotional of these themes ??  
-##########################################################################################################################################################################
+#####################################################################################################################################
 Day 4: 
 Context: 
 Emotional Triggers: 
