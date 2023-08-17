@@ -43,10 +43,10 @@ Was there any reason to be emotional of these themes ??  NO--Red Flagged
 
 #####################################################################################################################################
 Day 3: 
-Context: 
-Emotional Triggers: 
-Why are you allowing these triggers hit you?---> 
-Was there any reason to be emotional of these themes ??  
+Context: Car driving and when i see other person trying to overtake me wrongly or someone driving non-sense
+Emotional Triggers: Anger, Irritated
+Why are you allowing these triggers hit you?---> I feel the rules/standards are broken
+Was there any reason to be emotional of these themes ??  NO---Red flagged
 #####################################################################################################################################
 Day 4: 
 Context: 
