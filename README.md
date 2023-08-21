@@ -49,10 +49,18 @@ Why are you allowing these triggers hit you?---> I feel the rules/standards are 
 Was there any reason to be emotional of these themes ??  NO---Red flagged
 #####################################################################################################################################
 Day 4: 
-Context: 
-Emotional Triggers: 
-Why are you allowing these triggers hit you?---> 
-Was there any reason to be emotional of these themes ??  
+Context: My cat was badly beatenup by nig cat
+Emotional Triggers: Anger, Helpless, Revenge, furious
+Why are you allowing these triggers hit you?--->  Becuase I love the cat and i want to protect him, he is like family and i cann't see he getting hurt again and again. Eough warning have ben given to that big cat in past, but i plan to posion him now
+Was there any reason to be emotional of these themes ??  Yes
+#####################################################################################################################################
+
+
+
+
+
+
+
 
 
 
